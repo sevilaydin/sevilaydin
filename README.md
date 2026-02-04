@@ -45,8 +45,8 @@
 
 ### 📫 Let’s Connect!
 
-- 📧 Email: *(istersen ekleriz)*
-- 🔗 LinkedIn: *(istersen ekleriz)*
-- 🐙 GitHub: https://github.com/USERNAME
+- 📧 Email: sevar2362@gmail.com
+- 🔗 LinkedIn:https://www.linkedin.com/in/sevilayd%C4%B1n/
+- 🐙 GitHub: https://github.com/Sevil62
 
 ---
