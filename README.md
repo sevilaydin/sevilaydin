@@ -47,6 +47,6 @@
 
 - 📧 Email: sevar2362@gmail.com
 - 🔗 LinkedIn:https://www.linkedin.com/in/sevilayd%C4%B1n/
-- 🐙 GitHub: https://github.com/Sevil62
+- 🐙 GitHub: https://github.com/sevilaydin
 
 ---
